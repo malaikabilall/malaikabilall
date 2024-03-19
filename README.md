@@ -1,6 +1,6 @@
 - 👋 Hi, I’m malaikabilal
 - 👀 I’m interested in online work
-- 🌱 I’m currently learning web developing
+- 🌱 I’m currently learning web development
 - 📫 How to reach me: through e-mail: bmalaika88@gmail.com
 - 😄 Pronouns: she/her
 - ⚡ Fun fact: smartwork is better then hardwork.I beleive in smartwork.😎
